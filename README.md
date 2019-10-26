@@ -1,4 +1,4 @@
-# Amarnath.C -[Amarnath](https//:github.com/Amarnath.C)
+# Amarnath.C -[Amarnath.C](https//:github.com/Amarnath.C)
 
 
 
